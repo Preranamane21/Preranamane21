@@ -17,4 +17,4 @@
 
 📧 maneprerana748@gmail.com
 
-🔗 LinkedIn: linkedin.com/in/prerana-mane-886495317
+🔗 LinkedIn : www.linkedin.com/in/prerana-mane-886495317
